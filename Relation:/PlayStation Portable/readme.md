@@ -1,0 +1,1 @@
+- [PSP Go Storage upgrade! Install an internal MicroSD to M2 card adapter!](https://youtu.be/x1rr-NA7HDY)
